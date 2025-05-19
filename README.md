@@ -1,1 +1,1 @@
-I'm monoton.
+VJ / Technical Artist / Sound Designer
